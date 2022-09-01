@@ -1,1 +1,1 @@
-# Estat-stica---ENGD02
+# Estatistica-ENGD02
